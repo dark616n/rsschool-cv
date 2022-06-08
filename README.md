@@ -1,1 +1,1 @@
-https://dark616n.github.io/rsschool-cv/cv
+https://dark616n.github.io/rsschool-cv/
